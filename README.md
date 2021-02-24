@@ -6,5 +6,3 @@ I'm a software developer currently working on expanding my skill set on both the
 
 Ask me about keyboards and mountain biking 💬! 
 
-😄 Pronouns: He/Him. 
-
